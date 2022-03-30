@@ -42,6 +42,6 @@ Now, let me show you some pictures
 
 
 
-Thank you for visiting this website
+Thank you for visiting this website，we look forward to your next visit
 
 
