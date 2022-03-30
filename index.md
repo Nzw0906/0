@@ -1,3 +1,8 @@
+如果你是中国人，你可以切换到[中文](https://nzw0906.github.io/1/)网站 
+
+
+
+
 ## Welcome
 This is the official website of Harvard Middle School.
 
