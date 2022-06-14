@@ -52,6 +52,10 @@ Now, let me show you some pictures
 ![10260fd64e688582101e9768bc92e75](https://user-images.githubusercontent.com/91320006/160798057-cedcd9a9-5e28-441c-9351-eeeb66e78525.png)
 
 
+![capture_20220614202758354](https://user-images.githubusercontent.com/91320006/173597972-989f6591-45a2-4676-91a9-82404a98e5bb.jpg)
+
+
+
 
 Thank you for visiting this website，we look forward to your next [visit](https://nzw0906.github.io/4/)
 
