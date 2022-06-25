@@ -39,6 +39,9 @@ Please check the document below
 ![capture_20220614202758354](https://user-images.githubusercontent.com/91320006/173597972-989f6591-45a2-4676-91a9-82404a98e5bb.jpg)
 
 
+## Other
+
+[English knowledge points](https://nzw0906.github.io/6/)
 
 
 Thank you for visiting this website，we look forward to your next [visit](https://nzw0906.github.io/4/)
